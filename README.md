@@ -1,2 +1,5 @@
-# my-first-makeover-hack-jewel-cheats-mod-coins
-My First Makeover Hack 100k free jewels Cheats unlimited coins mod and tips
+# My First Makeover Hack 100k free jewels Cheats unlimited coins mod and tips
+
+My First Makeover Hack 100k free jewels Cheats unlimited coins mod and tips - Prepare to launch My First Makeover cheats before gaming. If you match four in a square, you'll get a small bomb. If you match four in a row, you get a fireworks, clearing the entire horizontal or vertical line. If you match five in the L-shape or the T-shape, you will get a big bomb. Finally, if you match five on a straight line, you'll get a rainbow block. Rainbow slice clears all colors, you mix it. You can also blend any set of two special tiles to get enhanced effects such as multiple row removal, even larger explosions, or with each piece on the board. You can play this game on your desktop or laptop, whatever platform you want. All you have to do is use the bluestacks Android emulator. Once you get them, make sure to run My First Makeover hack mod data in the background to earn jewels and coins for free!
+
+<a href="https://trustmod.top/my-first-makeover/">visit here</a>
